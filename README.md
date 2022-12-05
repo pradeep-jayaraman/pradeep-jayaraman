@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Pradeep
 - 👀 I have done my UG in B.Tech Information Technology
-- 🌱 Quick Learner
+- 🌱 Current designation - Senior Associate Consultant @Infosys
 - 💞️ I’m doing my best to make it better for the clients.
 - 📫 How to reach me ...
       developer.pradeepj@gmail.com | +91 9962269599 | Chennai, India | https://www.linkedin.com/in/pradeep-jayaraman/
